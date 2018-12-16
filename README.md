@@ -11,4 +11,4 @@ Some of us get dipped in flat, some in satin, some in gross. But every
 once in a while you find someon who's iridescent, and when you do,
 nothing can ever compare.(Flipped)
 
-The higher I got, themore amazed I was by the view.(Flipped)
+The higher I got, the more amazed I was by the view.(Flipped)
